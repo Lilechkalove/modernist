@@ -1,1 +1,1 @@
-[My_CV](https://Lilechkalove.github.io/modernist/modernist)
+[Modernist](https://Lilechkalove.github.io/modernist/modernist)
