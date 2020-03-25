@@ -1,1 +1,1 @@
-[Modernist](https://Lilechkalove.github.io/modernist/modernist)
+[Modernist](https://lisndk.github.io/modernist/modernist)
